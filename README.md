@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **lakshay012003@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1g1VUIYj6E56X1oVhZIs0l6jF3YpaPfdFbenOVxIEo14/edit?usp=sharing](https://docs.google.com/document/d/1g1VUIYj6E56X1oVhZIs0l6jF3YpaPfdFbenOVxIEo14/edit?usp=sharing)
+- 📄 Know about my experiences [https://docs.google.com/document/d/1g1VUIYj6E56X1oVhZIs0l6jF3YpaPfdFbenOVxIEo14/edit?usp=sharing](lakshayxbansal.com)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
