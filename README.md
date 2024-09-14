@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **lakshay012003@gmail.com**
 
-- 📄 Know about my experiences(lakshayxbansal.com)
+- 📄 Know about my experiences([lakshayxbansal.com](https://www.lakshayxbansal.com/))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
